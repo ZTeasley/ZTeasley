@@ -1,5 +1,5 @@
 - 🖖🏼 Hi, I’m Korra (Zion) 🖖🏼
-- 👍🏼Pronouns: They/Them👍🏼
+- 👍🏼Pronouns: She/Her/Hers👍🏼
 - 👀 I’m interested in UI & UX Design, and Esports. 👀
 - 🌱 I’m currently learning ChakraUI, and How To Use Figma. 🌱
 - 💞️ I’m looking to collaborate on any project that needs UX & UI Design. 💞️
