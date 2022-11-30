@@ -1,4 +1,4 @@
-- 🖖🏼 Hi, I’m Korra (Zion) 🖖🏼
+- 🖖🏼 Hi, I’m Teasley 🖖🏼
 - 👍🏼Pronouns: She/Her/Hers👍🏼
 - 👀 I’m interested in UI & UX Design, and Esports. 👀
 - 🌱 I’m currently learning ChakraUI, and How To Use Figma. 🌱
